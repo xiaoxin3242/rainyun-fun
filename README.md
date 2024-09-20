@@ -1,4 +1,4 @@
-# rainyun-fun
+# rainyun.fun
 雨云服务器优惠码是多少？
 **雨云官网：[https://www.rainyun.com/cdn_](https://www.rainyun.com/cdn_ "https://www.rainyun.com/cdn_")**
 **优惠码：cdn**
